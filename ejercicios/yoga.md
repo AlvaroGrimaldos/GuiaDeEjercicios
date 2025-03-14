@@ -13,3 +13,9 @@
 3. **Controla la respiración** – Inhala y exhala de manera lenta y profunda en cada movimiento.
 4. **Mantén la postura correcta** – Evita tensiones innecesarias y ajusta según tu nivel.
 5. **Relajación final** – Finaliza con una postura de descanso como Savasana para relajar cuerpo y mente.
+
+- **No fuerces las posturas**, avanza según tu flexibilidad.
+- **Practica en un lugar tranquilo** y con una esterilla cómoda.
+- **Usa ropa cómoda** que permita el movimiento libre.
+- **Escucha tu cuerpo** y detente si sientes dolor.
+- **Sé constante**, la práctica regular mejora los resultados.
