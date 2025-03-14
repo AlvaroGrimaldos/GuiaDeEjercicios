@@ -7,3 +7,9 @@
 - Mejora la coordinación y la respiración.
 - Reduce el estrés y la tensión muscular.
 - Previene lesiones y dolores de espalda.
+
+1. **Calentamiento** – Realiza estiramientos suaves y ejercicios de movilidad articular.
+2. **Ejercicio principal** – Ejecuta movimientos como el puente de glúteos, el cien o la tijera, con control y respiración profunda.
+3. **Mantén el core activado** – Contrae el abdomen para una mejor estabilidad.
+4. **Respira correctamente** – Inhala por la nariz y exhala por la boca en cada movimiento.
+5. **Relajación final** – Termina con estiramientos y respiración consciente para relajar los músculos.
