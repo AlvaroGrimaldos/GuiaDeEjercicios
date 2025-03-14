@@ -13,3 +13,9 @@
 3. **Mantén una buena técnica** – Controla la postura y la respiración para evitar lesiones.
 4. **Descansa entre series** – Tómate 30-60 segundos de descanso según la intensidad.
 5. **Enfriamiento** – Finaliza con estiramientos para relajar los músculos.
+
+- **Empieza con poco peso** y aumenta progresivamente.
+- **Mantén la espalda recta** para evitar lesiones.
+- **No olvides hidratarte** antes, durante y después del entrenamiento.
+- **Evita sobrecargar los músculos** y descansa lo necesario.
+- **Consulta a un profesional** si eres principiante o tienes alguna lesión.
