@@ -13,3 +13,7 @@
 3. **Mantén un ritmo constante** – Controla tu respiración y evita sobreesforzarte.
 4. **Hidratación** – Bebe agua antes, durante y después del ejercicio.
 5. **Enfriamiento** – Reduce la intensidad progresivamente y finaliza con estiramientos para relajar los músculos.
+
+- **Usa ropa y calzado adecuado** para evitar lesiones.
+- **Empieza con intensidad moderada** y aumenta progresivamente.
+- **Escucha a tu cuerpo** y descansa si sientes dolor o fatiga extrema.
