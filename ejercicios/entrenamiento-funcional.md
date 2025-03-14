@@ -13,3 +13,9 @@
 3. **Controla la técnica** – Mantén una buena postura y ejecución en cada movimiento.
 4. **Ajusta la intensidad** – Modifica la carga y repeticiones según tu nivel.
 5. **Enfriamiento** – Termina con estiramientos y respiración controlada para relajar los músculos.
+
+- **Empieza con ejercicios básicos** y aumenta la dificultad progresivamente.
+- **Evita sobrecargar el cuerpo** y descansa cuando sea necesario.
+- **Hidrátate bien** antes, durante y después del entrenamiento.
+- **Escucha a tu cuerpo** y evita movimientos que causen dolor.
+- **Consulta a un profesional** para una rutina personalizada.
