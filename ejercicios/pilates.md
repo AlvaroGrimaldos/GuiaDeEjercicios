@@ -13,3 +13,9 @@
 3. **Mantén el core activado** – Contrae el abdomen para una mejor estabilidad.
 4. **Respira correctamente** – Inhala por la nariz y exhala por la boca en cada movimiento.
 5. **Relajación final** – Termina con estiramientos y respiración consciente para relajar los músculos.
+
+- **Prioriza la técnica** sobre la velocidad o intensidad.
+- **Realiza movimientos controlados** y sin brusquedad.
+- **Evita tensar el cuello y los hombros** durante los ejercicios.
+- **Sé constante**, la práctica regular potencia los beneficios.
+- **Consulta a un instructor** si eres principiante o tienes lesiones.
