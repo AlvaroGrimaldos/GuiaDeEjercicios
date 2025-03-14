@@ -13,3 +13,9 @@
 3. **Mantén una buena técnica** – Controla la postura en cada ejercicio para evitar lesiones.
 4. **Regula la intensidad** – Adapta la carga y repeticiones según tu nivel.
 5. **Enfriamiento** – Finaliza con estiramientos y respiración controlada para relajar los músculos.
+
+- **Empieza con movimientos básicos** antes de aumentar la intensidad.
+- **Usa peso adecuado** para evitar lesiones.
+- **Descansa lo necesario** entre ejercicios intensos.
+- **Escucha a tu cuerpo** y evita sobreentrenarte.
+- **Consulta a un coach** para mejorar la técnica y progresar de forma segura.
