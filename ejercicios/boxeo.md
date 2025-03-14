@@ -13,3 +13,9 @@
 3. **Mantén una postura firme** – Pies separados, manos en guardia y peso equilibrado.
 4. **Controla la respiración** – Exhala con cada golpe para mejorar la potencia.
 5. **Enfriamiento** – Realiza estiramientos y respiración controlada para relajar los músculos.
+
+- **Usa vendas y guantes** para proteger las manos.
+- **No olvides la defensa**, mantén la guardia arriba.
+- **Golpea con control** para evitar lesiones en muñecas y hombros.
+- **Descansa adecuadamente** entre rondas para evitar fatiga excesiva.
+- **Consulta a un entrenador** si eres principiante para aprender la técnica correcta.
