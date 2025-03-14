@@ -13,3 +13,9 @@
 3. **Mantén una postura correcta** – Espalda recta y manos relajadas en el manillar.
 4. **Hidrátate bien** – Bebe agua antes, durante y después del ejercicio.
 5. **Enfriamiento** – Reduce la velocidad y estira las piernas al terminar.
+
+- **Ajusta la bicicleta** a tu altura para mayor comodidad.
+- **Usa equipo adecuado** como casco y ropa cómoda.
+- **Mantén una buena cadencia** (entre 70-100 rpm) para evitar fatiga.
+- **Evita superficies peligrosas** y respeta las normas de tránsito.
+- **Escucha tu cuerpo** y descansa si sientes dolor o fatiga extrema.
